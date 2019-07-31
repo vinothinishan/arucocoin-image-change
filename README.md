@@ -1,1 +1,0 @@
-# arucocoin-image-change
